@@ -1,0 +1,7 @@
+- [Skaventide Box Set](https://www.warhammer-community.com/en-gb/articles/yAqlr5Lh/skaventide-is-the-jam-packed-launch-box-for-the-new-edition-of-warhammer-age-of-sigmar/) (Game Nerdz Mesquite has 2 at $185ish) ✅
+- [Dominion Box Set](https://www.warhammer-community.com/en-gb/articles/4CZm5cyV/warhammer-preview-online-unboxing-dominion/) ($140 on ebay) ✅
+- [Armageddon](https://www.warhammer-community.com/en-gb/articles/4CZm5cyV/warhammer-preview-online-unboxing-dominion/) ($320) ✅
+- [Kill Team Starter Set](https://www.warhammer.com/en-US/shop/kill-team-starter-set-2024-eng) ($114) ✅
+- [Indomitus Box Set](https://web.archive.org/web/20200613132000/https://www.warhammer-community.com/2020/06/13/warhammer-40000-preview-whats-in-the-boxgw-homepage-post-1/) ($400-450 on ebay)
+- [Dark Imperium Box Set](https://web.archive.org/web/20200530222305/https://www.games-workshop.com/en-GB/Warhammer-40000-dark-imperium-eng-2017) ($450-500 on ebay)
+- [Leviathan Box Set](https://www.warhammer-community.com/en-gb/articles/Am3ZIwdF/warhammer-40000-leviathan-whats-in-the-box/) (prob $350-400 on ebay) 
