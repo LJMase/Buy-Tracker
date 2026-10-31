@@ -1,8 +1,8 @@
-- [Death Guard Combat Patrol](https://www.warhammer.com/en-US/shop/combat-patrol-death-guard-2025) ($170)
+- [Death Guard Combat Patrol](https://www.warhammer.com/en-US/shop/combat-patrol-death-guard-2025) ($170) ⭐
 - [Bubonic Cell Spearhead](https://www.warhammer.com/en-US/shop/spearhead-maggotkin-of-nurgle-bubonic-cell-2026) ($150)
-- [Death Guard Battleforce Box](https://www.fairgamestore.com/warhammer-40k-death-guard-vile-victorium-battlefor.html)($250) May have to find different 3rd party site
+- [Death Guard Battleforce Box](https://www.fairgamestore.com/warhammer-40k-death-guard-vile-victorium-battlefor.html)($250) May have to find different 3rd party site, house maranto still has one left ⭐
 - [Old Death Guard Combat Patrol](https://meeplecity.com/products/combat-patrol-death-guard?variant=52034310176981&country=US&currency=USD&utm_medium=product_sync&utm_source=google&utm_content=sag_organic&utm_campaign=sag_organic&gad_source=4&gad_campaignid=22400688957&gclid=CjwKCAjwn67VBhBnEiwAXUIN1RbeGF9XYOZbvPAChD1f3cgkjbEoCZ7w9tVRVjv6GiGJB7EcM0FHzxoC1SwQAvD_BwE)($160ish) May have to find different 3rd party site
-- [Mortarion](https://www.warhammer.com/en-US/shop/Death-Guard-Daemon-Primarch-Mortarion-2020) ($175)
+- [Mortarion](https://www.warhammer.com/en-US/shop/Death-Guard-Daemon-Primarch-Mortarion-2020) ($175) ⭐
 - [Poxwalkers](https://www.warhammer.com/en-US/shop/Death-Guard-Poxwalkers-2021) ($39)
 - [Great Unclean One](https://www.warhammer.com/en-US/shop/Great-Unclean-One-2018) ($170) ☑️ - Want 1 or even 2 more
 - [Defiler](https://www.warhammer.com/en-US/shop/chaos-space-marines-defiler-2026) ($145)
