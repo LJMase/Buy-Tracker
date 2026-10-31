@@ -1,6 +1,9 @@
 ---
-title: Welcome to Quartz
+title: LaVoe's Buy Tracker
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+Hello and welcome to LaVoe's buy tracker! From Warhammer to Plushies, here's the ultimate list of everything I plan to buy. 
+Each row will contain the name of an item, the link to said item (or details of item if there is no standard place of purchase), the estimated price, notes on the item (if any), and then an emoji that shows the status of the item. The emojis are as follows:
+- ⭐: High priority item
+- ✅: Already purchased item
+- ☑️: Already purchased item, but need more 
