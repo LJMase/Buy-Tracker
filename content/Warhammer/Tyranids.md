@@ -3,7 +3,7 @@ To finish Leviathan:
 
 Other Miniatures:
 - [Tyranids Combat Patrol]([https://www.warhammer.com/en-US/shop/tyranids-biovore-2023](https://www.warhammer.com/en-US/shop/combat-patrol-tyranid-assault-brood-2025)) ($170)
-- [Raveners Kill Team](https://www.warhammer.com/en-US/shop/kill-team-raveners-2025) ($69)
+- [Raveners Kill Team](https://www.warhammer.com/en-US/shop/kill-team-raveners-2025) ($69) ✅
 - [Norn Emissary](https://www.warhammer.com/en-US/shop/tyranids-norn-emissary-2023) ($122)
 - [Tyranids Codex](https://www.warhammer.com/en-US/shop/codex-tyranids-2023-eng) ($60)
 - [Tyranid Prime with Lash Whip](https://www.warhammer.com/en-US/shop/tyranid-prime-with-lash-whip-2026) ($43.50)
