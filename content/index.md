@@ -7,3 +7,5 @@ Each row will contain the name of an item, the link to said item (or details of 
 - ⭐: High priority item
 - ✅: Already purchased item
 - ☑️: Already purchased item, but need more 
+
+[[Tyranids.md]]
