@@ -6,15 +6,15 @@ Accessories:
 - [Vi/Lux/Garen Rune Sleeves](https://www.gamenerdz.com/dragon-shield-lightning-matte-dual-card-sleeves-100ct) ($11)
 - [Garen/Master Yi Rune Sleeves](https://www.gamenerdz.com/dragon-shield-ember-matte-dual-card-sleeves-100ct) ($11) ✅
 - [Token/Battlefield Sleeves](https://www.gamenerdz.com/dragon-shield-clear-card-sleeves-100) x2 ($9) ☑️
-- [Proving Grounds Battlefield Sleeves](https://www.gamenerdz.com/dragon-shield-clear-non-glare-board-game-sleeves-oversize-100ct?gad_source=1&gad_campaignid=835665008&gclid=Cj0KCQjwo_PRBhDNARIsAEcVALW_buqtcsKGjVHsTfhmxmzV20rfX6pDDeUm_x4_IUbMmEqXGqG57JgaAva2EALw_wcB) ($6.50)
+- [Proving Grounds Battlefield Sleeves](https://www.gamenerdz.com/dragon-shield-clear-non-glare-board-game-sleeves-oversize-100ct?gad_source=1&gad_campaignid=835665008&gclid=Cj0KCQjwo_PRBhDNARIsAEcVALW_buqtcsKGjVHsTfhmxmzV20rfX6pDDeUm_x4_IUbMmEqXGqG57JgaAva2EALw_wcB) ($6.50) ⭐
 
 Cards:
 WARNING - These links are to an ebay like site with multiple sellers, make sure the product is english
 - [Radiance Booster Box](https://www.tcgplayer.com/product/711365/riftbound-league-of-legends-trading-card-game-radiance-radiance-booster-display?country=US&utm_campaign=23396674211&utm_source=google&utm_medium=cpc&utm_content=&utm_term=&adgroupid=&gad_source=1&gad_campaignid=23396682920&gclid=Cj0KCQjw3YvXBhCDARIsAKB-ox-f8-4TcSavPvd6eK8UvRL0a0O4z1F2jIxhbRYW43tNzQ4njqbCrAcaAs18EALw_wcB&Language=English) (~$130) ☑️ - would like another but probably origins more?
-- [Vendetta Booster Box](https://www.tcgplayer.com/product/693380/riftbound-league-of-legends-trading-card-game-vendetta-vendetta-booster-display?Language=English&page=1) (~$120)
+- [Vendetta Booster Box](https://www.tcgplayer.com/product/693380/riftbound-league-of-legends-trading-card-game-vendetta-vendetta-booster-display?Language=English&page=1) (~$120) ⭐
 - [Vendetta Vault](https://www.tcgplayer.com/product/697970/riftbound-league-of-legends-trading-card-game-vendetta-vendetta-vault-bundle?Language=English&page=1) (~$40) 
 - [Unleashed Booster Box](https://www.tcgplayer.com/product/678150/riftbound-league-of-legends-trading-card-game-unleashed-unleashed-booster-display?Language=English&page=1) (~$170)
 - [Unleashed Vault](https://www.tcgplayer.com/product/678162/riftbound-league-of-legends-trading-card-game-unleashed-unleashed-vault-bundle?Language=English&page=1) (~$70)
 - [Spiritforged Booster Box](https://www.tcgplayer.com/product/661934/riftbound-league-of-legends-trading-card-game-spiritforged-spiritforged-booster-display?Language=English&page=1) (~$160)
-- [Origins Booster Box](https://www.tcgplayer.com/product/635368/riftbound-league-of-legends-trading-card-game-origins-origins-booster-display?Language=English&page=1) (~$220)
-- [Gift of the Rift Bundle](https://www.tcgplayer.com/product/714486/riftbound-league-of-legends-trading-card-game-gift-of-the-rift-bundle-gift-of-the-rift-bundle?country=US&utm_campaign=23396674211&utm_source=google&utm_medium=cpc&utm_content=&utm_term=&adgroupid=&gad_source=1&gad_campaignid=23396682920&gclid=Cj0KCQjw3YvXBhCDARIsAKB-ox-6TY8xYuS3mPhvNOi7SoEflJvgzyy8YBrDtJ2v8E7ZtWzJLoASCjEaAo_uEALw_wcB&Language=English) (~$130) - Comes out Dec 4th, price unannounced, must buy from local stores on release day
+- [Origins Booster Box](https://www.tcgplayer.com/product/635368/riftbound-league-of-legends-trading-card-game-origins-origins-booster-display?Language=English&page=1) (~$220) ⭐
+- [Gift of the Rift Bundle](https://www.tcgplayer.com/product/714486/riftbound-league-of-legends-trading-card-game-gift-of-the-rift-bundle-gift-of-the-rift-bundle?country=US&utm_campaign=23396674211&utm_source=google&utm_medium=cpc&utm_content=&utm_term=&adgroupid=&gad_source=1&gad_campaignid=23396682920&gclid=Cj0KCQjw3YvXBhCDARIsAKB-ox-6TY8xYuS3mPhvNOi7SoEflJvgzyy8YBrDtJ2v8E7ZtWzJLoASCjEaAo_uEALw_wcB&Language=English) (~$130) - Comes out Dec 4th, price unannounced, must buy from local stores on release day ⭐
